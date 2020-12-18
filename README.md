@@ -5,4 +5,4 @@ My name is Jonathan and i am a new developer with a background in well being and
 
 ## Where to find me? ##
 
-https://www.linkedin.com/in/jonathan-cohen-b105112b
+[Linkedin](https://www.linkedin.com/in/jonathan-cohen-b105112b)
